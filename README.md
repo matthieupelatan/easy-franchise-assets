@@ -1,0 +1,1 @@
+# easy-franchise-assets
